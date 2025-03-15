@@ -14,4 +14,4 @@ Github PDF project in Form For Production Technology
 
 
 
-[Github Synch.pdf](https://github.com/user-attachments/files/19263367/Github.Synch.pdf)
+[Github and Mirc Channel Synch.pdf](https://github.com/user-attachments/files/19263367/Github.Synch.pdf)
