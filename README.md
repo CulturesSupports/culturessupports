@@ -66,3 +66,15 @@ Github PDF project in Form For Production Technology
 
 
 
+
+
+
+
+### Jesus  Sitting Translate Bible Digital on Computer
+
+<img src="https://github.com/user-attachments/assets/c2d6b80d-49c1-4360-9135-a6051a532bd0"
+        alt="Jesus Translate Bible Digital on Computer"
+         width="400px" 
+         height="400px">
+
+
