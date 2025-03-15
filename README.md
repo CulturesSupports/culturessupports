@@ -82,7 +82,7 @@ Github PDF project in Form For Production Technology
 
 ### Github Achievement Badge : Religious Belived Jesus Helping Coding Statuses
 
-<img src="https://github.com/user-attachments/assets/1ec9f7c0-60e7-43ee-992f-0096132a03df" alt="Avatar" style="width:200px;  border-radius: 30%;">
+<img src="https://github.com/user-attachments/assets/1ec9f7c0-60e7-43ee-992f-0096132a03df" alt="Avatar" style="width:200px;  border-radius: 50%;">
 
 
 
@@ -90,5 +90,5 @@ Github PDF project in Form For Production Technology
 ### Jesus Cross The Line
 
 
-<img src="https://plus.unsplash.com/premium_vector-1724848537156-4fa1dc832254?w=900&auto=format&fit=crop&q=60&ixlib=rb-4.0.3&ixid=M3wxMjA3fDB8MHxzZWFyY2h8Mnx8amVzdXMlMjBoZWFsaW5nfGVufDB8fDB8fHww" alt="Avatar" style="width:200px;  border-radius: 30%;">
+<img src="https://plus.unsplash.com/premium_vector-1724848537156-4fa1dc832254?w=900&auto=format&fit=crop&q=60&ixlib=rb-4.0.3&ixid=M3wxMjA3fDB8MHxzZWFyY2h8Mnx8amVzdXMlMjBoZWFsaW5nfGVufDB8fDB8fHww" alt="Avatar" style="width:200px;  border-radius: 50%;">
 
