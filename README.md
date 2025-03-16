@@ -96,25 +96,26 @@
 
 
 
+-------------------
+-------------------
+-------------------
+-------------------
+-------------------
 
-
-![image](https://github.com/user-attachments/assets/cf4f1290-d402-4f2c-81b6-b07326fb058f)
-
-
-
-![image](https://github.com/user-attachments/assets/1ce488e2-534e-4158-8d91-e6991e5818ae)
-
-
-![image](https://github.com/user-attachments/assets/614e03b4-a4cc-46b3-a18c-780ad0c3bb26)
+### Jesus Makes Healing And Collecting Dead Souls From Apps And Ressurect Them
 
 
 <div style="display: flex; gap: 10px;">
   <img src="https://github.com/user-attachments/assets/cf4f1290-d402-4f2c-81b6-b07326fb058f" 
        alt="Jesus Making Body Ghost Alive" 
        style="width:300px; border-radius: 50%;">
+
+  
   <img src="https://github.com/user-attachments/assets/1ce488e2-534e-4158-8d91-e6991e5818ae" 
        alt="Jesus Making Body Ghost Alive" 
        style="width:300px; border-radius: 50%;">
+
+       
   <img src="https://github.com/user-attachments/assets/614e03b4-a4cc-46b3-a18c-780ad0c3bb26" 
        alt="Jesus Making Body Ghost Alive" 
        style="width:300px; border-radius: 50%;">
