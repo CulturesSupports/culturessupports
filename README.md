@@ -82,7 +82,7 @@ Github PDF project in Form For Production Technology
 
 ### Github Achievement Badge : Religious Belived Jesus Helping Coding Statuses
 
-<img src="https://github.com/user-attachments/assets/1ec9f7c0-60e7-43ee-992f-0096132a03df" alt="Avatar" style="width:200px;  border-radius: 50%;">
+<img src="https://github.com/user-attachments/assets/1ec9f7c0-60e7-43ee-992f-0096132a03df" alt="Avatar" style="width:300px;  border-radius: 50%;">
 
 
 
