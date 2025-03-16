@@ -82,8 +82,10 @@
 <img src="https://github.com/user-attachments/assets/d7961544-94dc-4c2f-8ca4-43c3c89deed0" alt="Jesus Plasma Conductor" style="width:300px; border-radius: 50%;">
 
 
+### Jesus and God The Holy Father sitting and Writes Bible Inventions With Holy Spirit
 
 
+<img src="https://github.com/user-attachments/assets/f42bb139-e3f9-492a-afee-7ae606826143" alt="Jesus And God inventions" style="width:300px; border-radius: 50%;">
 
 
 
