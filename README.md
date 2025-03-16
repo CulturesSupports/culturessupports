@@ -121,7 +121,7 @@
        style="width:300px; border-radius: 50%;">
 </div>
 
-### Jesus Collecting Dead Spirits and Send Them to Ressurect in His Demilitarized Zone
+### Jesus Collecting Dead Spirits into Mobile Units and Send Them to Ressurect in His Demilitarized Zone
 
 
 <img src="https://github.com/user-attachments/assets/fb80ee0e-c321-4d6b-baac-4cc6c2f0eee5" 
