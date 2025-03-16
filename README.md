@@ -61,8 +61,19 @@
 
 
 
-### Jesus Cross The Line
+### Jesus Programmed the Plasma Technology
 
 
-<img src="https://plus.unsplash.com/premium_vector-1724848537156-4fa1dc832254?w=900&auto=format&fit=crop&q=60&ixlib=rb-4.0.3&ixid=M3wxMjA3fDB8MHxzZWFyY2h8Mnx8amVzdXMlMjBoZWFsaW5nfGVufDB8fDB8fHww" alt="Jesus Healing" style="width:300px; border-radius: 50%;">
+<img src="https://github.com/user-attachments/assets/d9bacc40-6b19-410b-b62a-f9efcc1d39f6" alt="Jesus Healing" style="width:300px; border-radius: 50%;">
+
+
+
+
+
+
+
+
+
+
+
 
