@@ -88,4 +88,11 @@
 <img src="https://github.com/user-attachments/assets/f42bb139-e3f9-492a-afee-7ae606826143" alt="Jesus And God inventions" style="width:300px; border-radius: 50%;">
 
 
+### Jesus Making Body of Ghost Humans Come Back From Heaven With Ancient Tecnology Spriitual Devices
+
+
+
+<img src="https://github.com/user-attachments/assets/b5bb3c6d-8ab5-44cd-a085-e7e3025d9daf" alt="Jesus Making Body Ghost Alive" style="width:300px; border-radius: 50%;">
+
+
 
