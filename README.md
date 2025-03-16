@@ -116,10 +116,6 @@
        style="width:300px; border-radius: 50%;">
 
        
-  <img src="https://github.com/user-attachments/assets/614e03b4-a4cc-46b3-a18c-780ad0c3bb26" 
-       alt="Jesus Making Body Ghost Alive" 
-       style="width:300px; border-radius: 50%;">
-</div>
 
 ### Jesus Collecting Dead Spirits into Mobile Units and Send Them to Ressurect in His Demilitarized Zone
 
@@ -128,6 +124,10 @@
      alt="Jesus Making Body Ghost Alive" 
      style="width:300px; border-radius: 50%;">
 
+  <img src="https://github.com/user-attachments/assets/614e03b4-a4cc-46b3-a18c-780ad0c3bb26" 
+       alt="Jesus Making Body Ghost Alive" 
+       style="width:300px; border-radius: 50%;">
+</div>
 
 
 <img src="https://github.com/user-attachments/assets/e8ed2d6c-47c1-410b-83dd-8125331d8971"
