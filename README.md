@@ -129,13 +129,8 @@
      style="width:300px; border-radius: 50%;">
 
 
-<div style="width: 300px; border-radius: 50%; background-image: url('https://github.com/user-attachments/assets/e8ed2d6c-47c1-410b-83dd-8125331d8971'); background-size: cover; background-position: center;">
-</div>
 
-
-
-
-![image](https://github.com/user-attachments/assets/e8ed2d6c-47c1-410b-83dd-8125331d8971)
-
+<img src="https://github.com/user-attachments/assets/e8ed2d6c-47c1-410b-83dd-8125331d8971"
+     alt="Jesus Making Body Ghost Alive" style="width:300px; border-radius: 50%;">
 
 
