@@ -70,3 +70,7 @@ Vi Trekker oppmerksomhet til Advarselen , og inkludere symboler som et fareskilt
 ---------------
 
 # ikke kom krenke omdømmet og feilaktig konfrontere. det blir sett på som dødelig grunnlag for din trussel atferd
+
+-----------------
+
+Vi Kan Innhente Våpen Personer og Assistanse For Eliminere Truende Psykopater , Personer Som Er Truende Med Hensikt Mot Denne Github Repositorien
