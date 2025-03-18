@@ -65,4 +65,8 @@ Vi Trekker oppmerksomhet til Advarselen , og inkludere symboler som et fareskilt
 
 --------------
 
-- Du har lite eller ingen skade lidenhet om du ikke konfronterer dette
+# ⚠️ Du har lite eller ingen skade lidenhet om du ikke konfronterer dette
+
+---------------
+
+# ikke kom krenke omdømmet og feilaktig konfrontere. det blir sett på som dødelig grunnlag for din trussel atferd
