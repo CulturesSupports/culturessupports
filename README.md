@@ -29,6 +29,33 @@ Bruken av dødelig makt er strengt regulert i de fleste land og er ofte forankre
 
 3. **Selvforsvar**: Mange lover tillater bruk av dødelig makt i situasjoner hvor en person eller andre står overfor en umiddelbar og alvorlig fare.
 
-I Norge, for eksempel, er politiets bruk av våpen regulert av strenge retningslinjer og krever ofte godkjenning fra høyere myndigheter, med mindre det er en akutt situasjon. Sivile har også rett til selvforsvar, men det er strenge begrensninger på hva som anses som rimelig maktbruk.
+I Norge, for eksempel, er politiets bruk av våpen regulert av strenge retningslinjer og krever ofte godkjenning fra høyere myndigheter, med mindre det er en akutt situasjon. 
 
-Er det noe spesifikt aspekt ved dette temaet du ønsker å utforske videre?
+Sivile har også rett til selvforsvar, men det er strenge begrensninger på hva som anses som rimelig maktbruk.
+
+--------------------------
+
+
+# Advarsels Plakat:
+
+---
+
+### **ADVARSEL**
+**Farlig område – ingen Adgang på eget ansvar!**
+
+- Dette territoriet kan være farlig for uvedkommende.
+- Hold avstand og vær oppmerksom på omgivelsene.
+- Dette Skal ikke Være til Dialog med Andre
+
+---
+
+Vi Trekker oppmerksomhet til Advarselen , og inkludere symboler som et fareskilt
+
+# ⚠️ Asvarselen inngår i Forsvar Synst Punkt  !
+
+
+--------------------------
+
+
+
+
