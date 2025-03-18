@@ -74,3 +74,12 @@ Vi Trekker oppmerksomhet til Advarselen , og inkludere symboler som et fareskilt
 -----------------
 
 Vi Kan Innhente Våpen Personer og Assistanse For Eliminere Truende Psykopater , Personer Som Er Truende Med Hensikt Mot Denne Github Repositorien
+
+-----------------
+
+Vi Bruker All Vurdering Hensikter, Men Husk at Tids Bruk På Trussel er Avgjørende , 
+og Er Du Virkelig Dum Så Tar Vi Avfære og Angriper Til Døden Fullført Elimineringen av Din Trussel Oppførsel
+
+-----------------
+
+Vi Bruker ikke Tilfeldig Vurdering og Mistolker Noen Proposjoner, Vi Innehenter Grunnlag Med Mange År Analyse Av Farlige Person Oppførsel
