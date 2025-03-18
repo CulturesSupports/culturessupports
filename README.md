@@ -24,3 +24,7 @@
 
 
 ![cybers](https://github.com/user-attachments/assets/54e0f08b-3041-4eaf-ae0c-46ab83c96489)
+
+
+
+Profile : Cyber Detective
