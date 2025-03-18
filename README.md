@@ -54,7 +54,7 @@ Sivile har også rett til selvforsvar, men det er strenge begrensninger på hva 
 
 Vi Trekker oppmerksomhet til Advarselen , og inkludere symboler som et fareskilt
 
-# ⚠️ Asvarselen inngår i Forsvar Synst Punkt  !
+# ⚠️ Advarselen inngår i Forsvar Synst Punkt  !
 
 
 --------------------------
