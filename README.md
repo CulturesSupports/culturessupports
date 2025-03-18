@@ -92,3 +92,11 @@ Husk at selv om du er spion , så bør du trekke deg unna , vi har i kontekts ad
 ------------------
 
 vi skal alltid unngå konflikter , og ikke bli en makt allianse
+
+
+
+---------------------------------
+
+
+![image](https://github.com/user-attachments/assets/ac6bd4ec-9574-4606-81d8-3fe50367fe3f)
+
