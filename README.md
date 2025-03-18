@@ -19,8 +19,6 @@ Slike situasjoner vurderes vanligvis ut fra prinsipper som nødvendighet,
 
 
 
-
-
 --------------------------
 
 
@@ -101,3 +99,13 @@ vi skal alltid unngå konflikter , og ikke bli en makt allianse
 ![image](https://github.com/user-attachments/assets/ac6bd4ec-9574-4606-81d8-3fe50367fe3f)
 
 ![image](https://github.com/user-attachments/assets/586110b6-8060-4b63-8c24-ab8cd415742b)
+
+![image](https://github.com/user-attachments/assets/00086e68-fa32-4237-951d-912c0ccb4f3c)
+
+
+-------------------------------
+
+![Upplifiting](https://github.com/user-attachments/assets/230a7616-2970-43e9-afc0-24269c7e43fb)
+
+
+
