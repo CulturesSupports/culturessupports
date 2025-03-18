@@ -100,3 +100,4 @@ vi skal alltid unngå konflikter , og ikke bli en makt allianse
 
 ![image](https://github.com/user-attachments/assets/ac6bd4ec-9574-4606-81d8-3fe50367fe3f)
 
+![image](https://github.com/user-attachments/assets/586110b6-8060-4b63-8c24-ab8cd415742b)
