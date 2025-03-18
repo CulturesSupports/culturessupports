@@ -61,4 +61,8 @@ Vi Trekker oppmerksomhet til Advarselen , og inkludere symboler som et fareskilt
 
 
 
+# Du skal ikke Danne Provokasjon  ⚠️
 
+--------------
+
+- Du har lite eller ingen skade lidenhet om du ikke konfronterer dette
