@@ -83,3 +83,12 @@ og Er Du Virkelig Dum Så Tar Vi Avfære og Angriper Til Døden Fullført Elimin
 -----------------
 
 Vi Bruker ikke Tilfeldig Vurdering og Mistolker Noen Proposjoner, Vi Innehenter Grunnlag Med Mange År Analyse Av Farlige Person Oppførsel
+
+
+---------------
+
+Husk at selv om du er spion , så bør du trekke deg unna , vi har i kontekts advart at du ikke skal være her og se dette .
+
+------------------
+
+vi skal alltid unngå konflikter , og ikke bli en makt allianse
