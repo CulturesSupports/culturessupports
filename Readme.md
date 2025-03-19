@@ -1,17 +1,12 @@
 
 
+/--/-/-/--/
 
-///
+#  Github Leaved
 
-- Github Leaved
 
-///
-
-- You cant enjoy us here
-
-- we moving to other
-committing
-
+- Repository Will Remain Archived
+- Leaved Archived
 
 /--/-/-/--/
 
@@ -38,3 +33,8 @@ on Repository
 
 Repository Burned Archived
 
+-------------
+
+# Gitlab is Next
+
+# Goodbye
