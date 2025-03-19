@@ -9,8 +9,9 @@
 --------------------
 
 
+![image](https://github.com/user-attachments/assets/85a1dd78-0016-443d-bf9a-b109206fc26b)
 
-
+--------------
 
 
 <img src="https://github.com/user-attachments/assets/b8ba9e88-a9ee-4cb3-aa6b-48c89a183d68" alt="PHOTO SYNTH" height="400px" width="400px">
@@ -45,8 +46,8 @@
 ![image](https://github.com/user-attachments/assets/16166581-36a8-4d8e-8472-2a07e921817e)
 
 
-## GitKraken Envolves
-## Github Logo
+
+
 
 ---------------------
 
